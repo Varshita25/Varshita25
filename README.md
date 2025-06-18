@@ -34,7 +34,7 @@ Hello! I am an **M.Tech Student specializing in Artificial Intelligence**,.
 
 - **B.Tech in Computer Science & Engineering**  
   Hirasugar Institute of Technology (2018 – 2022)  
-  Bengaluru, India  
+  Belagavi, India  
 
 ---
 
