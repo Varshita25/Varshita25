@@ -4,7 +4,7 @@
 
 **Data Scientist**  
   
-🌐 [LinkedIn](www.linkedin.com/in/varshita-md)| [GitHub](https://github.com/Varshita25)
+🌐 [LinkedIn](https://linkedin.com/in/varshita-md)| [GitHub](https://github.com/Varshita25)
 
 ---
 
